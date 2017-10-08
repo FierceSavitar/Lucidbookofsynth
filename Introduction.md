@@ -1,6 +1,6 @@
 ## Introduction
 
-Lucid Dreaming is a way of exploring your conciousness through the very fabrix of your mind.
+Lucid Dreaming is a way of exploring your consciousness through the very fabrix of your mind.
 When Lucid Dreaming, your called an Oneironaut. This means that you explore dreams and everything in them.
 
 ## Upcoming Topics
